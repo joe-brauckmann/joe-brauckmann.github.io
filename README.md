@@ -26,6 +26,7 @@ _* - Recipe Calls for **Condensed** French Onion Soup but any of the options we 
 4. Lastly when the meat seems tender and its smelling really good, you will mix ~3 Tbsp of flour with 1 cup of water for a thickening agent. Add this to the pot and mix in to give the sauce a gravy texture. Let sit for 5 more minutes and then you are ready to go!
 
 **Rice**
+
 Easy and straightforward. 1 Cup of rice, 2 cups of water. Add salt and a wee bit of olive oil. Bring to a boil, then let simmer for about 12 min or until the rice seems that it soaked all of the water. Timing this to match with the main course is something that comes with time.
 
 
