@@ -1,4 +1,4 @@
-## Welcome to Hannah and Joe's Dinner Blog!
+# What did Hannah and Joe Eat?
 
 ### August 3 2021 - Beef Tips over rice
 
