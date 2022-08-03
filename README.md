@@ -1,5 +1,14 @@
 ## Welcome to Hannah and Joe's Dinner Blog!
 
+### August 3 2021 - Beef Tips
+
+**Ingredients**
+
+| Ingredient    | Cost          |
+| ------------- | ------------- |
+| Top Sirloin   | $8.99         |
+| Flour         | $1.27         |
+
 You can use the [editor on GitHub](https://github.com/joe-brauckmann/joe-brauckmann.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
