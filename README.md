@@ -1,6 +1,4 @@
-# What did Hannah and Joe Eat?
-
-### August 3 2021 - Beef Tips over rice
+## August 3 2021 - Beef Tips over rice
 
 **Ingredients**
 
