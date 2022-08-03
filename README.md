@@ -2,18 +2,19 @@
 
 **Ingredients**
 
-| Ingredient            | Measurements    |
-| --------------------- | --------------- |
-| Top Sirloin Steak     | 2 lb            |
-| Extra Virgin Olive Oil| 2 tblsp         | 
-| Onion                 | Chopped         | 
-| Beef Broth            | 10.5 oz         | 
-| French Onion Soup*    | 10.5 oz         | 
-| Worcesterier Sauce    | 1 Tbsp          | 
-| 1 Bay Leaf            | -               | 
-| Flour                 | 3 Tbsp          | 
-| Water                 | 1 Cup           | 
-| Rice                  | 1 Cup           | 
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Top Sirloin Steak            | 2 lb            |
+| Extra Virgin Olive Oil       | 2 tblsp         | 
+| Onion                        | Chopped         | 
+| Beef Broth                   | 10.5 oz         | 
+| French Onion Soup*           | 10.5 oz         | 
+| Primal Kitchen Steak Sauce   | 1 Tbsp          | 
+| 1 Bay Leaf                   | -               | 
+| Flour                        | 3 Tbsp          | 
+| Water (For Flour)            | 1/3 Cup         | 
+| Rice                         | 1 Cup           | 
+| Water (For Rice              | 2 Cup           | 
 
 _* - Recipe Calls for **Condensed** French Onion Soup but any of the options we found for this include soybean oil. As a substitute we get regular frech onion soup from progressive and only use about half of the brother included in the can_
 
