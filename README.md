@@ -1,3 +1,58 @@
+# August 7 2021 - Turkey Cheese Melts
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Peppered Turkey        | 1/2 lb            |
+| American cheese       | 1/2 lb            |
+| King's Hawaiian Minirolls    | 16 rolls         | 
+| Butter                   | 2 Tbsp         | 
+| Garlic                          | 1 Tsp              | 
+
+**Turkey Cheese Melts**
+1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
+2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
+3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
+4. Place the top sheet of rolls on top of everything in the baking dish.
+5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
+6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
+7. Heat oven to 350 degrees, and then place the dish into the oven.
+8. Bake for 20 minutes or until crispy buns/melted cheese.
+9. Remove from, cut into small sliders and ready to serve!
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+# August 6 2021 - Ranch Steaks and some sides
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Grass-fed Ranch Steaks        | 1 lb            |
+| Organic honey    | 2 Tbsp         | 
+| Salt          | 1 Tsp        | 
+| Pepper   | 1 Tsp          | 
+
+
+**Slider Patties**
+1. Pat steaks dry, lather in honey, season with sea salt and black pepper. Poke holes in the steaks with a fork to tenderize them.
+2. Heat iron skillet for a few minutes on medium heat.
+3. Place steaks on iron skillet and cook for 4 minutes on one side with a quarter turn after 2 minutes (This is a slight clockwise turn because the honey will begin to burn on the ridges of the skillet).
+4. Flip steaks over, grill for 3 more minutes or until internal temp reaches 110 degrees, and then remove from skillet and allow it to cool.
+
+**Sides**
+
+We had fresh fruit a piece of buttered sourdough bread as our side. We went with a white peach, sourdough bread from Trader joe's, and Kerrygold butter.
+
+![IMG_4135](https://user-images.githubusercontent.com/53092191/183540608-a5788f4f-f31e-46f5-9745-167a90abd5f8.jpeg)
+
+
 # August 5 2021 - Burger Sliders
 
 **Ingredients**
@@ -14,17 +69,14 @@
 | Garlic Powder                        | 1/2 Tsp          | 
 
 
-**Beef Tips**
+**Slider Patties**
 1. Take ground beef and mix in bowl with chopped onion, egg, and spices (salt, pepper, gorund cayenne pepper, and garlic powder)
 2. Take 8 handfuls of season ground beef and shape into tiny meatballs, that will then be flattened to be the shape of a mini burger.
 3. Heat iron skillet on medium heat for a few minutues and then throw on the 8 patties. Cook until internal temp reaches ~145 degrees.
 4. Add the burgers to the buns with desired cheese and toppings. Ready to serve!
 
-**Sides**
 
-We had fresh fruit as our side. We went with a white peach this night.
-
-![Beef-Tips-and-Gravy-](https://user-images.githubusercontent.com/53092191/182606515-132a796b-f9be-40c5-911f-77ec183dd515.jpeg)
+![IMG_3196](https://user-images.githubusercontent.com/53092191/183540743-a0887f74-9535-456e-a08e-fbdcab0e590a.JPEG)
 
 
 
