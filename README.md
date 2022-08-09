@@ -1,3 +1,33 @@
+# August 5 2021 - Burger Sliders
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Grass-fed Ground Beef        | 1 lb            |
+| King's Hawaiian Minirolls    | 8 rolls         | 
+| Half onion                   | Chopped         | 
+| Egg                          | 1               | 
+| Salt          | 1 Tsp        | 
+| Pepper   | 1 Tsp          | 
+| Ground Cayenne Pepper                   | 1/2 Tsp               | 
+| Garlic Powder                        | 1/2 Tsp          | 
+
+
+**Beef Tips**
+1. Take ground beef and mix in bowl with chopped onion, egg, and spices (salt, pepper, gorund cayenne pepper, and garlic powder)
+2. Take 8 handfuls of season ground beef and shape into tiny meatballs, that will then be flattened to be the shape of a mini burger.
+3. Heat iron skillet on medium heat for a few minutues and then throw on the 8 patties. Cook until internal temp reaches ~145 degrees.
+4. Add the burgers to the buns with desired cheese and toppings. Ready to serve!
+
+**Sides**
+
+We had fresh fruit as our side. We went with a white peach this night.
+
+![Beef-Tips-and-Gravy-](https://user-images.githubusercontent.com/53092191/182606515-132a796b-f9be-40c5-911f-77ec183dd515.jpeg)
+
+
+
 # August 3 2021 - Beef Tips over rice
 
 **Ingredients**
