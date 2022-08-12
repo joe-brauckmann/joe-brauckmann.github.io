@@ -1,4 +1,4 @@
-# August 7 2021 - Turkey Cheese Melts
+# August 12 2022 - Buffalo Chicken Dip
 
 **Ingredients**
 
@@ -28,7 +28,158 @@ NOTE* Many recipes can include mayo or condiment toppings. Feel free to customiz
 ![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
 
 
-# August 6 2021 - Ranch Steaks and some sides
+
+# August 11 2022 - NY Strip Steak and Smashed Potatoes
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| 2x NY Strip Steaks        | 1 lb            |
+| American cheese       | 1/2 lb            |
+| King's Hawaiian Minirolls    | 16 rolls         | 
+| Butter                   | 2 Tbsp         | 
+| Garlic                          | 1 Tsp              | 
+
+**NY Strip Steak**
+1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
+2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
+3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
+4. Place the top sheet of rolls on top of everything in the baking dish.
+5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
+6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
+7. Heat oven to 350 degrees, and then place the dish into the oven.
+8. Bake for 20 minutes or until crispy buns/melted cheese.
+9. Remove from, cut into small sliders and ready to serve!
+
+**Smashed Potatoes**
+1. Hi
+2. Fill in later
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+
+# August 10 2022 - Steak Fajitas
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Top Round Steak       | 1 1/2 lb            |
+| Soft Shells (Siete Brand)       | -           |
+| Fajita Seasoning Mix    | -         | 
+| Bell Peppers                  | 2         | 
+| 1/2 Yellow Onion                          | Sliced Thin              | 
+| Shredded Cheddar                       | -             | 
+
+**Steak Fajitas**
+1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
+2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
+3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
+4. Place the top sheet of rolls on top of everything in the baking dish.
+5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
+6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
+7. Heat oven to 350 degrees, and then place the dish into the oven.
+8. Bake for 20 minutes or until crispy buns/melted cheese.
+9. Remove from, cut into small sliders and ready to serve!
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+
+# August 9 2022 - Shrimp and Spaghetti
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Shrimp (Wild Caught)        | 1 lb            |
+| Spaghetti       | 1/2 lb            |
+| Red Pepper Flakes    | 16 rolls         | 
+| Butter                   | 2 Tbsp         | 
+| Garlic                          | 1 Tsp              | 
+
+**Shrimp and Spaghetti**
+1. Peel shrimp and wash
+2. 
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+
+# August 8 2022 - Chicken Fried Rice
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Eggs        | 2           |
+| Frozen Carrots and Peas      | 1/2 lb            |
+| 1/2 Yellow Onion   | Chopped         | 
+| Rice                   | 1 1/2 Cups         | 
+| Beef Broth                          | 2 Cups             | 
+| Water                         | 1 Cup             | 
+| Chicken                          | 1 1/2 lbs         | 
+| Soy Sauce                          | 1 Tbs             | 
+
+**Chicken Fried Rice**
+1. Cook the rice in the beef broth & water. 
+2. Cube the chicken. 
+3. Cook the chicken.
+4. Sauté the carrots, peas, and onions until softish.
+5. Move the veggies to the sides of pan, crack both the eggs and scramble them into the veggies.
+6. Once all cooked to how you want, add rice and chicken back in along with a little bit of soy sauce. 
+7. Mix and eat. 
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+
+# August 7 2022 - Turkey Cheese Melts
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Peppered Turkey        | 1/2 lb            |
+| American cheese       | 1/2 lb            |
+| King's Hawaiian Minirolls    | 16 rolls         | 
+| Butter                   | 2 Tbsp         | 
+| Garlic                          | 1 Tsp              | 
+
+**Turkey Cheese Melts**
+1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
+2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
+3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
+4. Place the top sheet of rolls on top of everything in the baking dish.
+5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
+6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
+7. Heat oven to 350 degrees, and then place the dish into the oven.
+8. Bake for 20 minutes or until crispy buns/melted cheese.
+9. Remove from, cut into small sliders and ready to serve!
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
+# August 6 2022 - Ranch Steaks and some sides
 
 **Ingredients**
 
@@ -53,7 +204,7 @@ We had fresh fruit a piece of buttered sourdough bread as our side. We went with
 ![IMG_4135](https://user-images.githubusercontent.com/53092191/183540608-a5788f4f-f31e-46f5-9745-167a90abd5f8.jpeg)
 
 
-# August 5 2021 - Burger Sliders
+# August 5 2022 - Burger Sliders
 
 **Ingredients**
 
@@ -80,7 +231,7 @@ We had fresh fruit a piece of buttered sourdough bread as our side. We went with
 
 
 
-# August 3 2021 - Beef Tips over rice
+# August 3 2022 - Beef Tips over rice
 
 **Ingredients**
 
