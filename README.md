@@ -47,7 +47,7 @@ NOTE* Add a sauce if lacking flavor. We used Yai's Thai Sweet Chili Sauce (found
 | Garlic Powder                   |  -            |
 | Onion Powder                      |  -            |
 
-_* - Honestly, it's a salad. Make it however you want, these are just the things I had on hand. Next time I'll probably add cucumbers and carrots too. 
+_* - Honestly, it's a salad. Make it however you want, these are just the things I had on hand. Next time I'll probably add cucumbers and carrots too._ 
 
 **Pittsburgh Salad**
 1. Make Your French Fries: Slice russet potatoes into long thing strips. Soak in water for an hour. Pat dry with paper towels. Preheat air fryer to 375. Coat strips with EVOO, salt, pepper. When ready, bake in the air fryer at 375 for 15 minutes, flipping halfway through. Line a baking sheet with parchment paper and preheat oven to 200. French Fries in the air fryer will take multiple batches, so throw the finished ones in the oven to keep warm while the others are frying. It probably would have been smarter to have just baked all of them in the oven together. 
