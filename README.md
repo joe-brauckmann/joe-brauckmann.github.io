@@ -1,3 +1,32 @@
+# August 14 2022 - Ground Beef Stir Fry
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Ground Beef (100% grass-fed, organic)     | 1lb          |
+| Rice      | 1 cup          |
+| Water or Beef Broth   | 2 cups        | 
+| Frozen Veggies            | 1-2 cups        | 
+| Salt                |-   | 
+| Pepper               |-   | 
+| Garlic powder              |-   | 
+| Onion Powder            |-   |
+| Cayenne Pepper Powder        |-   | 
+
+**Ground Beef Stir Fry**
+1. Cook rice
+2. Cook ground beef in a pan on medium heat, seasoned with salt, pepper, garlic powder, onion powder, and cayenne.
+3. When done, add beef to pot with rice.
+4. In remaining beef fat, cook veggies at same temperature until soft.
+5. Add to the pot with beef and rice, and stir together.
+
+NOTE* Add a sauce if lacking flavor. We used Yai's Thai Sweet Chili Sauce (found at Whole Foods) 
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
 # August 13 2022 - Pittsburgh Salad
 
 **Ingredients**
@@ -6,27 +35,31 @@
 | ---------------------------  | --------------- |
 | Chicken Breast        | 1.5 lbs           |
 | Russet Potatoes       | 2            |
-| King's Hawaiian Minirolls    | 16 rolls         | 
-| Butter                   | 2 Tbsp         | 
-| Garlic                          | 1 Tsp              | 
-| Garlic                          | 1 Tsp              | 
-| Garlic                          | 1 Tsp              | 
-| Garlic                          | 1 Tsp              | 
-| Garlic                          | 1 Tsp              | 
-| Garlic                          | 1 Tsp              | 
+| Salad or Lettuce Mix*    | 1 bag         | 
+| Bell Peppers*                   | 2, chopped         | 
+| Cherry Tomatoes*                          | 1/2 pint, chopped             | 
+| Broccoli Florets*                        | 1 cup           | 
+| Hard Boiled Eggs                          | 3, sliced             | 
+| Shredded Cheddar                       | -            | 
+| Extra Virgin Olive Oil                        | -            | 
+| Salt                         | -           | 
+| Pepper                         |  -            | 
+| Garlic Powder                   |  -            |
+| Onion Powder                      |  -            |
+
+_* - Honestly, it's a salad. Make it however you want, these are just the things I had on hand. Next time I'll probably add cucumbers and carrots too. 
 
 **Pittsburgh Salad**
-1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
-2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
-3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
-4. Place the top sheet of rolls on top of everything in the baking dish.
-5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
-6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
-7. Heat oven to 350 degrees, and then place the dish into the oven.
-8. Bake for 20 minutes or until crispy buns/melted cheese.
-9. Remove from, cut into small sliders and ready to serve!
+1. Make Your French Fries: Slice russet potatoes into long thing strips. Soak in water for an hour. Pat dry with paper towels. Preheat air fryer to 375. Coat strips with EVOO, salt, pepper. When ready, bake in the air fryer at 375 for 15 minutes, flipping halfway through. Line a baking sheet with parchment paper and preheat oven to 200. French Fries in the air fryer will take multiple batches, so throw the finished ones in the oven to keep warm while the others are frying. It probably would have been smarter to have just baked all of them in the oven together. 
+2. Hard boil your eggs (ideally while the fries are being made)
+3. Make Your Salad: self explanatory. Chop up whatever veggies you're using. Toss them in a large bowl with your chosen lettuce.
+4. Slice or chop your hard boiled eggs and add them to a separate, small bowl. 
+5. Cook Chicken: Ideally, the chicken is supposed to be grilled. If you don't have one of those or don't feel like it, cut the chicken into cubes. Add whatever seasoning you want and cook all the way through. Once finished and cooled a little, add the chicken bites to your salad & mix those guys in.
+6. Grab your (warm) fries out of the oven.
+7. Make Your Plate!: The Pittsburgh Way to build your plate is salad first, then egg whites, fries, shredded cheese, and dressing. We used Primal Kitchen Cilantro Lime marinade/dressing and highly recommend. 
 
-NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+NOTE* Grilled chicken is definitely way better for this, but it's still yummy however you can make it 
 
 
 
@@ -39,24 +72,23 @@ NOTE* Many recipes can include mayo or condiment toppings. Feel free to customiz
 
 | Ingredient                   | Measurements    |
 | ---------------------------  | --------------- |
-| Peppered Turkey        | 1/2 lb            |
-| American cheese       | 1/2 lb            |
-| King's Hawaiian Minirolls    | 16 rolls         | 
-| Butter                   | 2 Tbsp         | 
-| Garlic                          | 1 Tsp              | 
+| Shredded Chicken      | 1lb          |
+| 1/3 Fat Cream Cheese      | 1 block           |
+| Plain Greek Yogurt    | 1 cup        | 
+| Ranch Seasoning              | 1 packet        | 
+| Shredded Mozzarella                 | 1 cup             | 
+| Hot wing or buffalo sauce                | 1/2 cup             | 
 
-**Turkey Cheese Melts**
-1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
-2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
-3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
-4. Place the top sheet of rolls on top of everything in the baking dish.
-5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
-6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
-7. Heat oven to 350 degrees, and then place the dish into the oven.
-8. Bake for 20 minutes or until crispy buns/melted cheese.
-9. Remove from, cut into small sliders and ready to serve!
+**Buffalo Chicken Dip**
+1. Preheat oven to 350
+2. Combine chicken, cream cheese, mozz, and sauce all into a bowl
+3. Pour greek yogurt into a separate bowl or glass measuring cup. 
+4. Mix ranch packet into yogurt, then dump mixture into bowl with the rest of the ingrdients.
+5. Mix all ingrdients together until everything is the same color and you can't tell anything apart. 
+6. Pour into glass baking dish (we use 9x9) and bake for 20-25 minutes
+7. Let cool for a minute, prepare your dippers and enjoy! 
 
-NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+NOTE* For any sauces we always recommend Primal Kitchen. We ate our dip with baby carrots, celery, and siete tortilla chips. 
 
 
 
@@ -70,7 +102,7 @@ NOTE* Many recipes can include mayo or condiment toppings. Feel free to customiz
 
 | Ingredient                   | Measurements    |
 | ---------------------------  | --------------- |
-| 2x NY Strip Steaks        | 1 lb            |
+| Mini Golden Potatoes     | 1 bag          |
 | American cheese       | 1/2 lb            |
 | King's Hawaiian Minirolls    | 16 rolls         | 
 | Butter                   | 2 Tbsp         | 
@@ -88,10 +120,14 @@ NOTE* Many recipes can include mayo or condiment toppings. Feel free to customiz
 9. Remove from, cut into small sliders and ready to serve!
 
 **Smashed Potatoes**
-1. Hi
-2. Fill in later
-
-NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+1. Boil potatoes for 15-20 minutes
+2. Drain potatoes, add to separate bowl
+3. Coat potatoes with evoo, salt, pepper, garlic powder, onion powder, and basil
+4. Preheat oven to 450
+5. Line a large baking sheet with parchment paper, add coated potatoes and make sure there is space between them
+6. Smash each potato with the bottom of a pint glass. Don't press too hard, just flatten into a thick pancake. 
+7. Bake at 450 for 25-35 minutes (I check at 25 but lean closer to 35, I like them on the crispier side)
+8. Let cool for a few minutes and enjoy!
 
 
 
