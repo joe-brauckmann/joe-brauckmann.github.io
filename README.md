@@ -1,3 +1,38 @@
+# August 13 2022 - Pittsburgh Salad
+
+**Ingredients**
+
+| Ingredient                   | Measurements    |
+| ---------------------------  | --------------- |
+| Chicken Breast        | 1.5 lbs           |
+| Russet Potatoes       | 2            |
+| King's Hawaiian Minirolls    | 16 rolls         | 
+| Butter                   | 2 Tbsp         | 
+| Garlic                          | 1 Tsp              | 
+| Garlic                          | 1 Tsp              | 
+| Garlic                          | 1 Tsp              | 
+| Garlic                          | 1 Tsp              | 
+| Garlic                          | 1 Tsp              | 
+| Garlic                          | 1 Tsp              | 
+
+**Pittsburgh Salad**
+1. Take King's Hawaiian sheet of minirolls (16) and slice the entire sheet of rolls in half so you have one sheet of bottoms and one sheet of tops.
+2. Move the top sheet to the side and place the bottom sheet in a 9x9 glass baking dish.
+3. Layer the sheet of bottom rolls with the peppered turkey. Repeat with american cheese.
+4. Place the top sheet of rolls on top of everything in the baking dish.
+5. Put the butter and the spoonful of garlic in a bowl, heat in microwave until melted, stir together.
+6. Brush the garlic butter mix onto the the top of mini turkey cheese melts until covered completely.
+7. Heat oven to 350 degrees, and then place the dish into the oven.
+8. Bake for 20 minutes or until crispy buns/melted cheese.
+9. Remove from, cut into small sliders and ready to serve!
+
+NOTE* Many recipes can include mayo or condiment toppings. Feel free to customize to your liking. If you have trouble finding seed oil free condiments, Primal Kitchen is a great option as they only use avocado oil. They can be found in whole foods or sprouts.
+
+
+
+![image](https://user-images.githubusercontent.com/53092191/183539880-8f958ad5-017a-4e76-b930-8627eb19161a.png)
+
+
 # August 12 2022 - Buffalo Chicken Dip
 
 **Ingredients**
